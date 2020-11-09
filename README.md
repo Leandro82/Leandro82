@@ -8,4 +8,4 @@ Meu Facebook: https://www.facebook.com/leandroradesc/
 
 Meu LinkedIn: https://www.linkedin.com/in/leandro-radighieri/
 
-Meu currículo: https://drive.google.com/file/d/1C890OE0X-A9YJ_dTpWcEH2Yjq4mwYkfr/view?usp=sharing
+Meu currículo: https://docs.google.com/document/d/19Qt-PMpziRqw9QqkF35GCgMtiMjwZY-bPvQs2eK__E4/edit?usp=sharing
